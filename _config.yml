@@ -31,7 +31,7 @@ owner:
   bio:            "A web developer, folk singer, guitarist and caller"
   email:          whoelse@patrickrosemusic.co.uk
   # Twitter nick for use in Twitter cards and follow button.
-  twitter: DrugCraxed # if no twitter in this config, the twitter follow button will be removed
+  twitter: DrugCrazed # if no twitter in this config, the twitter follow button will be removed
   # GitHub nick for use in follow button in author block.
   github: PatrickRose
 
