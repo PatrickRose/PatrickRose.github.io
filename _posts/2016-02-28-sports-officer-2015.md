@@ -2,7 +2,7 @@
 layout: post
 title: Sheffield University Officer Elections 2015 (Sports Officer)
 date: 2016-02-28T23:32:50+00:00
-categories: [Sports Officer', '2015']
+categories: ['Sports Officer', '2015']
 ---
 
 To the Sports!
