@@ -62,3 +62,63 @@ Leadership programme to access a platform of campaigning and activism (*What doe
 Re-analyse academic support and Course rep structure (work with Education Officer)
 
 Score: 0/10. I'm not bitter about you stealing my brackets. No sir.
+
+### Ghoona Naizi ###
+
+<dl>
+<dt>Slogan</dt>
+<dd>Make it snazzy, vota Niazi</dd>
+<dt>Rating</dt>
+<dd>8/10. Oooh, that's a good'un</dd>
+</dl>
+
+#### Manifest ####
+
+Greetings! I am Ghoona Niazi, an international student from Pakistan. I am currently a Master student with an urge to grow (*You don't look that short in your picture...*) and progress in a diverse and versatile atmosphere. I could barely speak English when I first arrived at Sheffield (*We don't speak English here, we speak Yorkshire. That probably made things worse*). Due to certain cultural and language barriers, I couldn’t make any friends in the first month. Things were turning out to be worse than I anticipated, but then I realized to redefine my goals and to break my shell to serve the people.
+
+#### If I get elected I would definitely focus on: ####
+
+Raising voices for international campaigning and breaking barriers of racism and cultural difference by promoting the notion of One World (*One Love! One Heart!*).
+
+Promote more scholarship and funding schemes around the globe (*I'm not sure if we can do much about that here in Sheffield*) in order to endorse world class education to all eligible students.
+
+Raise awareness about Study Skills services provided by university specifically to International students, who face hardships regarding academic skills (*In before idiots say that's racist against the people who aren't international students...*).
+
+Work mutually with Career Services and Advice Centre to solve issues regarding part-time and full-time jobs, accommodations, and very importantly visa issues (*Good idea*).
+
+Arrange and organize festivals (*Those are really easy. Definitely*) that will promote globalization in this way that it gives a chance to the home students to learn about different cultures as well.
+
+Put forward a decent platform for more petitions (*Oh god, not more*) according to student’s will towards the government when required, to make a more competitive educational atmosphere (*Eh?*). 
+
+To persuade on special matters regarding end of study tenure and start of practical life among international students.
+
+Score: 3/10. There's not a lot there to be honest.
+
+### Julius Nchor ###
+
+<dl>
+<dt>Slogan</dt>
+<dd>Yes we can, together we will</dd>
+<dt>Rating</dt>
+<dd>0/10. I feel like I've accidentally stepped into a Tech Start up slogan meeting. Or a cult. More importantly <strong>IT ISN'T A PUN</strong></dd>
+</dl>
+
+#### Manifesto ####
+
+My name is Julius Nchor (*And I'm an alcoholic?*), I’m currently a postgraduate student (*DAMMIT*) in Urban Design and Planning, contesting for International Students’ officer. It has been my passion to contribute to the welfare of university students and I wish to take my contributions to the next level (*[Insert cheap sex joke here]*). Over the years, whilst studying for my degree (*See, that was your first mistake*), I was involved with the union in a variety of roles, by working with staff and students on a number of projects and issues that matter to students. I was the Student Union President of my university (*Why low ball this one!?*), and also Director of Finance.
+
+My vision is to make the International students irrespective of race, gender, religion and/ or beliefs, while studying to be free to contribute their opinions with regards to what happens within and outside of the student union.
+
+#### If I get elected I will... ####
+
+Set in place machinery to encourage registered associations of different countries to leave up to their responsibility, and create an enabling environment for celebration of festivals of the various countries in the university (*This reads like buzzword ipsum*).
+
+Encourage dialog between international students, the academia and other stakeholders (*Why use the word stakeholders, this is definitely buzzword ipsum*), and the participation of corporate bodies via seminars, symposiums, conferences (*What's that even meant to be!?*).
+
+Put more emphasis on encouraging international students to harness their capabilities while in school, and will work closely with the career service to help create more job awareness and application (*Bit of an annoyance if Visas are as hard to come by as people seem to be claiming*).
+
+Support mature and part-time international students whose opinions are barely heard, by including them in open debates and future activities (*A good idea*).
+
+Surely-Your voice will be heard and acted upon. (*...*)
+
+Score: 1/10. I have no idea what that was
