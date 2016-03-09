@@ -63,7 +63,7 @@ Re-analyse academic support and Course rep structure (work with Education Office
 
 Score: 0/10. I'm not bitter about you stealing my brackets. No sir.
 
-### Ghoona Naizi ###
+## Ghoona Naizi ##
 
 <dl>
 <dt>Slogan</dt>
@@ -72,7 +72,7 @@ Score: 0/10. I'm not bitter about you stealing my brackets. No sir.
 <dd>8/10. Oooh, that's a good'un</dd>
 </dl>
 
-#### Manifest ####
+### Manifest ###
 
 Greetings! I am Ghoona Niazi, an international student from Pakistan. I am currently a Master student with an urge to grow (*You don't look that short in your picture...*) and progress in a diverse and versatile atmosphere. I could barely speak English when I first arrived at Sheffield (*We don't speak English here, we speak Yorkshire. That probably made things worse*). Due to certain cultural and language barriers, I couldn’t make any friends in the first month. Things were turning out to be worse than I anticipated, but then I realized to redefine my goals and to break my shell to serve the people.
 
@@ -94,7 +94,7 @@ To persuade on special matters regarding end of study tenure and start of practi
 
 Score: 3/10. There's not a lot there to be honest.
 
-### Julius Nchor ###
+## Julius Nchor ##
 
 <dl>
 <dt>Slogan</dt>
@@ -103,7 +103,7 @@ Score: 3/10. There's not a lot there to be honest.
 <dd>0/10. I feel like I've accidentally stepped into a Tech Start up slogan meeting. Or a cult. More importantly <strong>IT ISN'T A PUN</strong></dd>
 </dl>
 
-#### Manifesto ####
+### Manifesto ###
 
 My name is Julius Nchor (*And I'm an alcoholic?*), I’m currently a postgraduate student (*DAMMIT*) in Urban Design and Planning, contesting for International Students’ officer. It has been my passion to contribute to the welfare of university students and I wish to take my contributions to the next level (*[Insert cheap sex joke here]*). Over the years, whilst studying for my degree (*See, that was your first mistake*), I was involved with the union in a variety of roles, by working with staff and students on a number of projects and issues that matter to students. I was the Student Union President of my university (*Why low ball this one!?*), and also Director of Finance.
 
