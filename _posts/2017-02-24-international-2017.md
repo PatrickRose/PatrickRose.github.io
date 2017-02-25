@@ -1,8 +1,9 @@
 ---
 layout: post
 title:  "Sheffield University Officer Elections 2017 (International Officer)"
-date:   2017-02-24 23:42:33 +0000
+date:   2017-02-24T23:42:33 +0000
 categories: ['International Officer', '2017']
+---
 
 International officer is always a weird one, mainly because I feel mocking the wording is mocking the fact someone isn't a a native speaker.
 
